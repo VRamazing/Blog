@@ -1,13 +1,11 @@
-
-
 Yes you guessed it right Humanity is stupid and its our fault.A species that evolved through millions of years and which 
 eventually placed more significance on brain a brawn.
-
 As Einstein quoted we are becoming a generation of smart phones and dumb people.We are morphing into incapable fools 
 who can't accomplish a simple task without computers.
 We are loosing our biggest strength our intelligence and focusing too much on outward satisfaction and wordly pleasure 
-instead of working on our own self. THink about it has there been a significant discovery in the past 2 decades.Noooo.
-Why?
+instead of working on our own self. Think about it has there been a significant discovery in the past 2 decades.Noooo.
+Why? Most of us have stopped thinking or stop being smart.
+
 The reason we have stopped using intelligence is firstly we don't know how smart we actually are and secondly we can't 
 find the right reason to use it.Partying hard till blackout is neither right way nor right reason to use it.
 
