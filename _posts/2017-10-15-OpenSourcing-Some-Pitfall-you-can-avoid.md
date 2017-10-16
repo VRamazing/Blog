@@ -17,10 +17,12 @@ __2. It takes too much time and commitment__
   a couple PR's for a week.I can assure you will feel a lot more content with yourself .Plus you can always catch up with your show later :D
 
 __3. It's too complicated__
+
   Sometimes we rush to things so quickly that it seems to be much more complicating than it actually is.A better alternative is to 
   take one small step at a time to get started.No one ever tumbled on a small step.
   
 __4. It's not that important__
+
   Contributing to open source has many advantages and the most important of all is that you learn to write better code because your code is accepted only if community approves it.You are forced to follow best practices which is an important skill as this is what employers look for in new candidates.Contributing to open source can be the most important thing you can do today.
 
 
