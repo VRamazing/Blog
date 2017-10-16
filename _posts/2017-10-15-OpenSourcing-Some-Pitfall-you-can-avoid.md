@@ -19,7 +19,7 @@ __2. It takes too much time and commitment__
 __3. It's too complicated__
 
   Sometimes we rush to things so quickly that it seems to be much more complicating than it actually is.A better alternative is to 
-  take one small step at a time to get started.No one ever tumbled on a small step.
+  take one small step at a time to get started.No one ever stumbled on a small step.
   
 __4. It's not that important__
 
