@@ -1,7 +1,7 @@
 I got started with open source community with Hacktoberfest which is an event organized by Digital Ocean in collaboration with github.
 It was really great to contribute to so many interesting projects but it lead me to wonder why had I been procrastinating open source 
 contribution up until now.
-So here's a list of excuses I kept on making that you could avoid doing.
+So here are a couple of excuses I kept on making, that you could avoid.
 
 
 __1. I am not good enough__
@@ -19,6 +19,9 @@ __2. It takes too much time and commitment__
 __3. It's too complicated__
   Sometimes we rush to things so quickly that it seems to be much more complicating than it actually is.A better alternative is to 
   take one small step at a time to get started.No one ever tumbled on a small step.
+  
+__4. It's not that important__
+  Contributing to open source has many advantages and the most important of all is that you learn to write better code because your code is accepted only if community approves it.You are forced to follow best practices which is an important skill as this is what employers look for in new candidates.Contributing to open source can be the most important thing you can do today.
 
 
 
