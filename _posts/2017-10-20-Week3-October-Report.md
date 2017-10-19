@@ -21,3 +21,6 @@ closely.I don't think I am crazy although if I am I seem to be happier than ever
 in past and have achieved exceptional analytical and logical skills.Its seems my brain is rewiring everyday.The change is so great.It made 
 me think if I had autism in past.My relationship with the community are improving and reforming.I am going back into the society.
 Maybe there is a name to everything I am going through although my research and intuition is leading me to the word "Spiritual Enlightenment."
+
+The only thing that I feel like doing at the moment is just work on my startup and not faking it.I have been procrastinating nerdy humans for a while with lame excuses.It's time to stop making them.Similarly, I need to work on creating an original game and earning money with igameproject.Because that is the point of starting a business.Earn while having fun!!!!
+I need to fall back to my habit of exercising every day and Reading a book for half an hr at least.I seem to have neglected these things for a while but they are essential to my success.
