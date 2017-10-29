@@ -1,16 +1,16 @@
 Yes you guessed it right Humanity is stupid and its our fault.A species that evolved through millions of years and which 
-eventually placed more significance on brain a brawn.
-As Einstein quoted we are becoming a generation of smart phones and dumb people.We are morphing into incapable fools 
+eventually placed more significance on the brain a brawn.
+As Einstein quoted we are becoming a generation of smartphones and dumb people.We are morphing into incapable fools 
 who can't accomplish a simple task without computers.
-We are loosing our biggest strength our intelligence and focusing too much on outward satisfaction and wordly pleasure 
+We are losing our biggest strength our intelligence and focusing too much on outward satisfaction and worldly pleasure 
 instead of working on our own self. Think about it has there been a significant discovery in the past 2 decades.Noooo.
 Why? Most of us have stopped thinking or stop being smart.
 
 The reason we have stopped using intelligence is firstly we don't know how smart we actually are and secondly we can't 
 find the right reason to use it.Partying hard till blackout is neither right way nor right reason to use it.
 
-First things first we have to stop using negative affirmation and things that affects our subconscious like weeds affects 
-gardens.Things like I so stupid? I am not smart? affects our mind and becomes our reality. 
+First things first we have to stop using negative affirmation and things that affects our subconscious like weeds affects gardens
+.Things like I so stupid? I am not smart? affects our mind and becomes our reality. 
 Even Einstein became himself by thinking and holding himself in high regard even when no one else thought he was even fit 
 to even teach students.We are all born intelligent we just have forgotten how to use that intelligence.
 
@@ -28,4 +28,3 @@ From now on there are couple more affirmation that are going down on my list.
 "I can easily solve any programming problem thrown at me easily"
 
 Affirmations have power to change reality if done right.Lets see what the result shall be in a year.
-
