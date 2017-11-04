@@ -11,14 +11,21 @@ I could die peacefully.
 
 It was simmilar to this scenario
 Man(Suicidal) : I don't want to live any more.(About to jump from the building top.)
+
 Man(Helper)   : But you haven't started living yet.
+
 Man(Suicidal) : What do you mean?
+
 Man(Helper)   : Have you seen New Zealand
+
 Man(Sucidal)  : No
+
 Man(Helper)   : They say they have really soft grass which when you fall on ,you wouldn't feel anything.So If you really want
                 to give up your life.You can go to New Zealand and jump from a roof on the grass and die peacefully.This, what you 
                 are doing is simply a painful death.
+                
 Man(Sucidal)  : Thinks...
+
 Man(Helper)   : If you get down now we can plan the trip together.
 
 Eventually, the suicidal man gives in and started seeing world from different eyes from what he hasn't noticed and slowly 
