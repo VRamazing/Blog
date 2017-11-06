@@ -41,7 +41,7 @@ in cobol these days.
 After that I got countless opportunities for varying CTC anywhere from 3-9 lakhs p.a. High paying jobs wanted me to be in bangalore
 which I didn't wanted to go to and the jobs that I got around Delhi NCR I didn't went to.Most probably because I didn't felt my talents would be
 best used in a 9-5 job.Sometimes I rejected jobs because I did not like the technology they were working on, somethimes because of the salary
-they were paying and sometimes because it did not felt right to do it.My fears were leading me to apply for jobs I didn't wanted to go to and my 
+they were paying and sometimes because it did not felt right things to do.My fears were leading me to apply for jobs I didn't wanted to go to and my 
 anxiety and depression were stopping me to join them.
 Once a friend got me a job I didn't ask for and I rejected it.He was like what do you want from life.I said I wanted to be happy.
 It was hard for me to go against the wind.There were many sacrifices I had to make but it was fruitful and worth living.I learnt technologies I 
