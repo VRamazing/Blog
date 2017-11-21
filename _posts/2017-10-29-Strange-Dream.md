@@ -19,5 +19,5 @@ the dream and get up which I did.I woke up and I have never felt more alive in m
 I went back to sleep peacefully and woke up next morning to check if someone else has experienced such a sleep paralysis.The thought that
 kept springing to my head was kundalini.So I checked Reddit and many people do report such incidents.It's possible that last night I experienced
 enlightenment like the protagonist from "2001 A space odyssey". When I woke up I was happy with my life and how far I had come.This was unlike me
-as I usually am a bit pessimist and constantly comparing myself with others and what I haven't done.I feel content.Maybe I have become enlightened or
+as I usually am a bit competitive.I feel content and happy from inside.Maybe I have become enlightened or
 maybe this is just a start.
