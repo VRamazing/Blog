@@ -23,3 +23,5 @@ match no matter what they do.This is where humility can help.As the saying goes 
 
 I think ultimately both arrogance and humility is important for survival and how we balance them will decide the outcome of our life.
 
+*'I am the greatest, I said that even before I knew I was' - Muhammad Ali*
+
