@@ -8,7 +8,7 @@ and become a more attractive personality.It was difficult as you could see every
 It was around that time I become truly rebel.Sacrificing my career if need be.I didn't wanted to be a musician or an engineer.
 I wanted to be an entrepreneur who makes the difference to the world and who makes a living doing what he loves.Moreover, I didn't
 think someone who get bored easily was suitable for job life.Playing music still, does make me high.It has a similar effect as
-meditation or drugs does on some people.
+meditation or probably drugs does on some people.
 
 After a year or so I realised its time to stop reading books and focus on improving programming as I wanted to create next breakthrough
 application and not write a book about creating it.So I gave myself away to programming and loved the process.10 months
@@ -20,21 +20,14 @@ that could stop me and I would craft the best work in the world.On the other han
 to do, I would do the shittiest job in the world.No matter what I do I am not able to change this quality and have finally surrendered to
 it for good.
 
-Creating games don't motivate me, Creating websites makes me sick, Working 9-5 makes me wanna puke.I have tried challenging myself to
-various challenges but it has failed to interest me.I see no point learning technologies for the sake of learning.I can enjoy it for
-a while but it soon gets boring.Learning technologies to create a product which would help me earn and at the same time serve someone.
-Now that's something I would love to work on.Working on open source for a month was great but I wasn't anything over there.Making a 
-living is important. I can't rely on my parents forever.I thought about creating games for and making money out of it.I recreated a 
-couple of them and didn't felt like making any more.Probably because I started focussing on creating more games instead of making a
-living.I should write my purpose somewhere in bold so that I never forget it. __Be a technology entrepreneur and make a living out of it__
-I have found out why money is important and how it fits in my life.I have learnt that you can be happy adn complete without money but 
+Learning technologies to create a product which would help me earn and at the same time serve someone.
+Now that's something I would love to work on.I should write my purpose somewhere in bold so that I never forget it. __Be a technology entrepreneur and make a living out of it__
+I have found out why money is important and how it fits in my life.I have learnt that you can be happy and complete without money but 
 up to an extent.Even monks need money for survival(Bhiksha).I need money to fulfill my dreams.I can't be anymore happy without
 achieving my dreams/my purpose/my meaning.And these things are only possible  if I make money.Money governs everything.Money is power.
 (Not that I am a power maniac.Its just the truth.) I can't build a company without an equity which is basically money.I can't build 
 a house or make a living without money, I need it.Plus its a good publicity for any entrepreneur.
 
-In my eyes, I have already become successful. I have found my purpose and it's time I pursue it relentlessly and prove it to the world that I am successful.From now on my every action and decision will be towards making money.Never thought I would say this.I have been preaching
-all my life to not run after money.Pragmatically cash can always be reused.
-
+In my eyes, I have already become successful. I have found my purpose and it's time I pursue it relentlessly and prove it to the world that I am successful.From now on my every action and decision will be towards making money and be a better technology entrepreneur.
 And hence my new year resolution is to __make more money than yesterday and overall earn atlease 6 lakhs and to meet 1 new person better 
 than me every week.__ in 2018.I know I am gonna make it.
