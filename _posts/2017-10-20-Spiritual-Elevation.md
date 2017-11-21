@@ -4,7 +4,7 @@ It was really powerful.I don't know I can't seem to motivate myself to work this
 going through ascession symtoms so I used to sleep early and wake up late to ease the pain.I will probably write another 
 post about my spiritual experiences.I believe I am really close to the climax.Hope this ends soon.
 
-Working on anymore projects don't seem to motivate me.Everything seems similar and boring.Things that seem to excite me don't 
+Working on anymore projects don't seem to motivate me.Everything seems similar and boring.Things that seemed to excite me don't 
 seem to excite me anymore.In such a state what should a person do. I am not depressed, I feel happy when I sit idle and  be present 
 in the moment.I used to feel contrary in the past as I was a kind of person who likes to utilize most of his time.At present
 forcing myself to work depresses me to lowest bottom(Wishing I was dead instead). I don't think such a state is good on a long term.
@@ -22,5 +22,3 @@ in past and have achieved exceptional analytical and logical skills.Its seems my
 me think if I had autism in past.My relationship with the community are improving and reforming.I am going back into the society.
 Maybe there is a name to everything I am going through although my research and intuition is leading me to the word "Spiritual Enlightenment."
 
-The only thing that I feel like doing at the moment is just work on my startup and not faking it.I have been procrastinating nerdy humans for a while with lame excuses.It's time to stop making them.Similarly, I need to work on creating an original game and earning money with igameproject.Because that is the point of starting a business.Earn while having fun!!!!
-I need to fall back to my habit of exercising every day and Reading a book for half an hr at least.I seem to have neglected these things for a while but they are essential to my success.
