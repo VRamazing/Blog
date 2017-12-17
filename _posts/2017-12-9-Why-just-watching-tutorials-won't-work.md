@@ -1,8 +1,4 @@
-
-
 Why just watching tutorials won't work?
-
-
 I have been doing the same thing for past 4 years. Watching tutorials and following them towards completion. Although this 
 technique is helpful in learning technology. I don't think this is optimal and feasible everywhere. Its too slow. As of today 
 a lot of people @gamkedo were discussing about blockchain. I realised that somewhere down the line if I want to learn a new 
