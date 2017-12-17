@@ -9,6 +9,8 @@ a lot of people @gamkedo were discussing about blockchain. I realised that somew
 technology then following tutorial and then working on my prototype is comparitively a slow process. I can instead go for start 
 working on prototype and then only watch those videos/tutorials that will help me create the product further. Only requiring those 
 skills that are helpful to you in the moment. 
+
+
 Still sometimes its best to follow along in a tutorial as it gives you an idea about how much time it might take for you to complete
 a task. It makes you patient. Both skills are equally important. I would try to implement second skill mostly
 Following tutorial gives you an understanding of what is the best way to progress in a given technology.
