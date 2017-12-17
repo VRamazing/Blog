@@ -3,7 +3,9 @@ development. First the awesome courses by Udemy then pixel art animation and mus
 and now I need to make 145 more contribution this month to reach 1000 commits on github. Well I am doing everything that I 
 always dreamed of doing and life couldn't be better. Although yes I still need to figure out how to make a living and I think
 it is super important to me now. I love attending weekly meeting and being accountable to someone else has surely improved by 
-productivity aroud 10 folds. I have already completed the weekly target I set for this week for gamkedo. Everything seems to 
+productivity aroud 10 folds. 
+
+I have already completed the weekly target I set for this week for gamkedo. Everything seems to 
 fall perfectly into place. I am also working on vuetify-firebase course to create a web application. I am 84% done and will try to 
 complete rets of the course today. I have been reading bhagwad Geeta everyday for a month and it is changing a lot within me. It
 has become a theraupreutic experience. Those 10 minutes I am in a different plane. Still I am just half way through and definetly 
