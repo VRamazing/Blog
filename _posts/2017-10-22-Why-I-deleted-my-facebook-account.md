@@ -1,5 +1,5 @@
 
-There is a popular saying "You are the average of 5 people you surround yourself with". I always thought I surrounded myself 
+There is a popular saying __"You are the average of 5 people you surround yourself with"__. I always thought I surrounded myself 
 with the right people. One day while going through some introspection I asked myself. What do I mean by right people?
 Everyone has a good and bad side. Everyone has strength and weakness.We can learn something from everyone so in a way everyone
 is the right person. So why am I not yet successful?
@@ -9,7 +9,7 @@ successful or not. There are few things you have no control over and this is one
 the subconscious mind is out of our control. We can limit to some extent by controlling who we interact with. While choosing who you surround 
 yourself one must specifically choose people who will take them closer to their ambition ,goal or vision.
 
-As another saying goes "It's better to be last among the best than to be best among last."
+As another saying goes __"It's better to be last among the best than to be best among last."__
 
 While choosing my college I chose the inverse approach. I thought being best among last would help me learn better and I would feel  more confident.I still regret that decision. Although being best among last can feel good momentarily. There is next to no improvement and only confidence one feels is superficial and short-lived. In the world that is ever changing, I don't think this approach
 is viable.
@@ -32,4 +32,4 @@ me forward in my technology career.
 If something is important enough to you then you would do anything to achieve it. Similarly, I would do anything within my potential and principles to be a successful tech entrepreneur. I have a dream to one day do business with Mark Zuckerberg and Elon musk and I am going to make
 it happen.I am not gonna let other people's opinion down me or let someone with a narrow mindset effect me.
 
-*We are born to make a difference to this world and it is up to us on how big that difference is.*
+__*We are born to make a difference to this world and it is up to us on how big that difference is.*__
