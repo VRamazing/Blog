@@ -1,21 +1,5 @@
-Why just watching tutorials won't work?
-I have been doing the same thing for past 4 years. Watching tutorials and following them towards completion. Although this technique is helpful in learning technology. I don't think this is optimal and feasible everywhere. Its too slow. As of today , a lot of people @gamkedo were discussing about blockchain. I realised that somewhere down the line if I want to learn a new technology
-then the following tutorial and then working on my prototype is comparatively a slow process. I can instead go for start 
-working on the prototype and then only watch those videos/tutorials that will help me create the product further. Only requiring those 
-skills that are helpful to you in the moment. 
 
+I have been doing the same thing for past 4 years. Watching tutorials and following them towards completion Although this technique is helpful in learning technology. I don't think this is optimal and feasible everywhere. Its too slow. . No matter how many tutorials I watch the knowledge seem to be incomplete. If I want to get a prototype done for a pet project following this approach might take months at a time. As of today , a lot of people are discussing about blockchain and how it can be of importance to the world. I realised that somewhere down the line if I want to learn a new technology then the following tutorial and then working on my prototype is comparatively a slow process.
 
-Still sometimes its best to follow along in a tutorial as it gives you an idea about how much time it might take for you to complete
-a task. It makes you patient. Both skills are equally important. I would try to implement second skill mostly
-Following tutorial gives you an understanding of what is the best way to progress in a given technology.
+I can instead go for start working on the prototype and then only watch those videos/tutorials which will help me create the product further. Only requiring those skills that are helpful to me in the moment. This way I can always pickup any technology that I want, create what I want and forget about it.  This reduces dependence on a particular technology and promotes technological freedom and creativity. As technology is progressing so fast. It doesn't seem prudent to stick to one technology and using this approach can make or save a career. Although this approach is hacky, it gets job done quickly  and mostly produces better results.
 
-Further, I have decided to give time to improve my web presence to get more gigs online. Now I am a entrepreneur and I have to work
-hard to present myself in such a way. Things are going great but I have to work harder now. I am not working hard enough.
-God is with me and will always will be. I am achieving my purpose slowly and day at a time.I have decided to create a  game a week
-and tweet it every Saturday. Further I can also tweet what 1 great and important thing that I completed that particular day which
-made that day worth living. It could be anything from following along a tutorial to create something awesome on your own.
-Probably FCC project. My attempt with these tweets would be to reach like-minded people and land more gigs. Further in LinkedIn
-I can share an awesome blog post that I must write every week which makes it even more important to get my blog ready and web site
-updated as soon as possible. Damn I have so little time and so much to do. I have to work more efficiently. I am sleeping a lot.
-Probably have to pull a few all-nighters and I think today is a good day for it as I don't need to exercise today. Anyways
-enough of ranting. Gotta work hard and complete today's work..
