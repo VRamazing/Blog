@@ -30,8 +30,7 @@ gone by so fast I believe I gave my 100% in these 6 months despite eventual dist
 25. Learned to live a balanced life.
 26. Joined Gamkedo CLub
 
-*I still think there is room for a lot of improvement.My journey into open source community leads me into finding people far
-better than me.I have met people who are doing better than me in the 1st year of college.So where do I stand?Next 6 months I 
-am going work even harder.I will have fun and at the same time get work done.I know I have much more potential that what i think.
+*I still think there is room for a lot of improvement.My journey into open source community lead me into finding people far
+better than me. And that's what motivates me at the moment. I have decided to work done and at the same time enjoy the process. I know I have much more potential that what i think. :)*
 
 __*It's possible.It's not over until I win!!*__
