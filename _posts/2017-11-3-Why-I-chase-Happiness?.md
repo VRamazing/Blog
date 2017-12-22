@@ -1,5 +1,3 @@
-
-
 2 years ago I had a serious depression.I did not feel like doing anything.I did not had a purpose in life and I didn't knew where I was headed. My friend used to mock me "What's 
 the point of traveling when you don't know where you are traveling to". I felt till now I was following the crowd and going whichever
 location seemed most secure. Naive as I was. Months passed by and I still couldn't find my purpose.I was feeling suffocated and finally, the 
