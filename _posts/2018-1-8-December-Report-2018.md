@@ -11,3 +11,5 @@ following done.
 8. Took $20180 challenge this year and became completely open about it.
 9. Started exercising a bit more.
 10. Contributed on almost all current games on gamkedo
+
+Trying to make 2018 the best year of my life and I am optimistic it will be. :)
