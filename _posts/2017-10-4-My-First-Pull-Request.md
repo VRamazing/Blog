@@ -15,7 +15,7 @@ possibility. In one such exploration I got introduced to Hacktoberfest which is 
 github. I signed up and the motivation for me initially was to get the t shirts as I never got one. This was something new to me.
 And there I went exploring again on how to submit a PR which until now was a daunting task for me. My first PR was to update a 
 README file and I was like man this is so exciting and fun. I felt so good to finally start contributing. I was filled up with life 
-again.In my excitement I thought why not learn Git PR process from both sides.Why not help others like me. So I started igameproject
+again. In my excitement I thought why not learn Git PR process from both sides.Why not help others like me. So I started igameproject
 and opened it to other open source enthusiasts and guess what, contributions pour like rain. It was an amazing feeling. I made 54 contribution
 in a day. My all time high and people still contribute to the repo. I felt like I was given a sip of ambrosia.The world of possibility
 was right in front of my eyes. I completed hacktoberfest by making 4 commits within 2 days.Currently going on 8. Without Richard Stallman
