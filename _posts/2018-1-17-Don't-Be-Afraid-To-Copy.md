@@ -13,6 +13,8 @@ What I am saying is to learn by copying masters. If you want to learn to program
 
 All great masters be it Leonardo da Vinci, Shakespeare, started like this and in this way they surpassed the people they learnt from and became masters themselves. I urge you to not be afraid of copying and at the same time not to take it for granted as the only skill you may have. 
 
+*TL;DR Don't be afraid to copy and yet at the same time don't forget to add your own essence to the work you produce*
+
 __Your work is a representative of who you are. When everything is lost and forgotten your work will remain. Make sure it inspires anyone who comes across it.__
 
 To learn more on how to become a master. Read this Book <a target="_blank" href="https://www.amazon.in/gp/product/178125091X/ref=as_li_tl?ie=UTF8&camp=3638&creative=24630&creativeASIN=178125091X&linkCode=as2&tag=vigneshramesh-21&linkId=0eecf0a70aa297f8b467031a5505195b">Mastery (The Robert Greene Collection)</a><img src="//ir-in.amazon-adsystem.com/e/ir?t=vigneshramesh-21&l=am2&o=31&a=178125091X" width="1" height="1" border="0" alt="" style="border:none !important; margin:0px !important;" />
